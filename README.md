@@ -1,1 +1,1 @@
-![Knowledge of the local real estate market Communication skills Negotiation skills Problem-solving skills Organization and time management skills](https://github.com/aniketjha9179/NoteTaking-app/assets/84675061/4d69dbd3-3cee-4a3c-aed4-cc7a9562f984)
+![NoteTaking app for andr](https://github.com/aniketjha9179/NoteTaking-app/assets/84675061/e49db9d1-cddf-4020-bc34-e9aee76c9c33)
